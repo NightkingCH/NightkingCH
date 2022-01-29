@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @NightkingCH
-- 📫 How to reach me over @Cotspheer
+- 📫 Reach me over at https://github.com/Cotspheer
